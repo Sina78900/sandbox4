@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-04-29 01:51 IR
+- 🎬 [گپی در مورد امنیت استفاده از بله بخصوص برای خارج نشین‌ها.mp4](https://github.com/mahyafarrokh/sandbox/raw/main/dl/%DA%AF%D9%BE%DB%8C%20%D8%AF%D8%B1%20%D9%85%D9%88%D8%B1%D8%AF%20%D8%A7%D9%85%D9%86%DB%8C%D8%AA%20%D8%A7%D8%B3%D8%AA%D9%81%D8%A7%D8%AF%D9%87%20%D8%A7%D8%B2%20%D8%A8%D9%84%D9%87%20%D8%A8%D8%AE%D8%B5%D9%88%D8%B5%20%D8%A8%D8%B1%D8%A7%DB%8C%20%D8%AE%D8%A7%D8%B1%D8%AC%20%D9%86%D8%B4%DB%8C%D9%86%E2%80%8C%D9%87%D8%A7.mp4) `36.4MB`
+
+---
+
+
 ### 📅 2026-04-29 01:22 IR
 - 🎬 [آموزش طراحی سایت با المنتور- ساخت صفحه تماس با ما Contact Form - قسمت ۶.mp4](https://github.com/mahyafarrokh/sandbox/raw/main/dl/%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D8%B7%D8%B1%D8%A7%D8%AD%DB%8C%20%D8%B3%D8%A7%DB%8C%D8%AA%20%D8%A8%D8%A7%20%D8%A7%D9%84%D9%85%D9%86%D8%AA%D9%88%D8%B1-%20%D8%B3%D8%A7%D8%AE%D8%AA%20%D8%B5%D9%81%D8%AD%D9%87%20%D8%AA%D9%85%D8%A7%D8%B3%20%D8%A8%D8%A7%20%D9%85%D8%A7%20Contact%20Form%20-%20%D9%82%D8%B3%D9%85%D8%AA%20%DB%B6.mp4) `32.0MB`
 
