@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-10 02:06 IR
+- 🎬 [جواب به سوالات پرتکرار شما + بهینه ترین روش اتصال با پروتکل DNS⁉️.mp4](https://github.com/Sina78900/sandbox4-yt/raw/main/dl/%D8%AC%D9%88%D8%A7%D8%A8%20%D8%A8%D9%87%20%D8%B3%D9%88%D8%A7%D9%84%D8%A7%D8%AA%20%D9%BE%D8%B1%D8%AA%DA%A9%D8%B1%D8%A7%D8%B1%20%D8%B4%D9%85%D8%A7%20%2B%20%D8%A8%D9%87%DB%8C%D9%86%D9%87%20%D8%AA%D8%B1%DB%8C%D9%86%20%D8%B1%D9%88%D8%B4%20%D8%A7%D8%AA%D8%B5%D8%A7%D9%84%20%D8%A8%D8%A7%20%D9%BE%D8%B1%D9%88%D8%AA%DA%A9%D9%84%20DNS%E2%81%89%EF%B8%8F.mp4) `45.1MB`
+
+---
+
+
 ### 📅 2026-05-09 16:03 IR
 - 🗜️ [EPORNER.COM%20-%20[iWK2AjgbmQ6]%20Jesse%20Pony%20(720).mp4.zip](https://github.com/Sina78900/sandbox4/raw/main/dl/EPORNER.COM%2520-%2520%5BiWK2AjgbmQ6%5D%2520Jesse%2520Pony%2520%28720%29.mp4.zip) `167KB`
 
