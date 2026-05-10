@@ -2,6 +2,48 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-10 13:15 IR
+- 🎬 [درک شبکه با جادی ۰۳ - دی اچ سی پی و آی پی گرفتن اتوماتیک.mp4](https://github.com/Sina78900/sandbox4-yt/raw/main/dl/%D8%AF%D8%B1%DA%A9%20%D8%B4%D8%A8%DA%A9%D9%87%20%D8%A8%D8%A7%20%D8%AC%D8%A7%D8%AF%DB%8C%20%DB%B0%DB%B3%20-%20%D8%AF%DB%8C%20%D8%A7%DA%86%20%D8%B3%DB%8C%20%D9%BE%DB%8C%20%D9%88%20%D8%A2%DB%8C%20%D9%BE%DB%8C%20%DA%AF%D8%B1%D9%81%D8%AA%D9%86%20%D8%A7%D8%AA%D9%88%D9%85%D8%A7%D8%AA%DB%8C%DA%A9.mp4) `87.9MB`
+
+- 🗜️ [درک شبکه ها با جادی - ۰۱ - معرفی مسیر و دوره.mp4.zip](https://github.com/Sina78900/sandbox4-yt/raw/main/dl/%D8%AF%D8%B1%DA%A9%20%D8%B4%D8%A8%DA%A9%D9%87%20%D9%87%D8%A7%20%D8%A8%D8%A7%20%D8%AC%D8%A7%D8%AF%DB%8C%20-%20%DB%B0%DB%B1%20-%20%D9%85%D8%B9%D8%B1%D9%81%DB%8C%20%D9%85%D8%B3%DB%8C%D8%B1%20%D9%88%20%D8%AF%D9%88%D8%B1%D9%87.mp4.zip) `33.2MB`
+
+- 🗜️ [درک شبکه ها با جادی - ۰۱ - معرفی مسیر و دوره.mp4.z01](https://github.com/Sina78900/sandbox4-yt/raw/main/dl/%D8%AF%D8%B1%DA%A9%20%D8%B4%D8%A8%DA%A9%D9%87%20%D9%87%D8%A7%20%D8%A8%D8%A7%20%D8%AC%D8%A7%D8%AF%DB%8C%20-%20%DB%B0%DB%B1%20-%20%D9%85%D8%B9%D8%B1%D9%81%DB%8C%20%D9%85%D8%B3%DB%8C%D8%B1%20%D9%88%20%D8%AF%D9%88%D8%B1%D9%87.mp4.z01) `95.0MB`
+
+- 🗜️ [درک شبکه ها با جادی - ۰۱ - معرفی مسیر و دوره.mp4.zip](https://github.com/Sina78900/sandbox4-yt/raw/main/dl/%D8%AF%D8%B1%DA%A9%20%D8%B4%D8%A8%DA%A9%D9%87%20%D9%87%D8%A7%20%D8%A8%D8%A7%20%D8%AC%D8%A7%D8%AF%DB%8C%20-%20%DB%B0%DB%B1%20-%20%D9%85%D8%B9%D8%B1%D9%81%DB%8C%20%D9%85%D8%B3%DB%8C%D8%B1%20%D9%88%20%D8%AF%D9%88%D8%B1%D9%87.mp4.zip) `33.2MB`
+
+- 🎬 [درک مفاهیم شبکه با جادی ۰۴ - آی پی، نت مسک و ساب‌نتینگ.mp4](https://github.com/Sina78900/sandbox4-yt/raw/main/dl/%D8%AF%D8%B1%DA%A9%20%D9%85%D9%81%D8%A7%D9%87%DB%8C%D9%85%20%D8%B4%D8%A8%DA%A9%D9%87%20%D8%A8%D8%A7%20%D8%AC%D8%A7%D8%AF%DB%8C%20%DB%B0%DB%B4%20-%20%D8%A2%DB%8C%20%D9%BE%DB%8C%D8%8C%20%D9%86%D8%AA%20%D9%85%D8%B3%DA%A9%20%D9%88%20%D8%B3%D8%A7%D8%A8%E2%80%8C%D9%86%D8%AA%DB%8C%D9%86%DA%AF.mp4) `34.7MB`
+
+- 🗜️ [درک مقدماتی شبکه با جادی ۰۰۲ - راه اندازی لب و سوییچینگ.mp4.zip](https://github.com/Sina78900/sandbox4-yt/raw/main/dl/%D8%AF%D8%B1%DA%A9%20%D9%85%D9%82%D8%AF%D9%85%D8%A7%D8%AA%DB%8C%20%D8%B4%D8%A8%DA%A9%D9%87%20%D8%A8%D8%A7%20%D8%AC%D8%A7%D8%AF%DB%8C%20%DB%B0%DB%B0%DB%B2%20-%20%D8%B1%D8%A7%D9%87%20%D8%A7%D9%86%D8%AF%D8%A7%D8%B2%DB%8C%20%D9%84%D8%A8%20%D9%88%20%D8%B3%D9%88%DB%8C%DB%8C%DA%86%DB%8C%D9%86%DA%AF.mp4.zip) `26.5MB`
+
+- 🗜️ [درک مقدماتی شبکه با جادی ۰۰۲ - راه اندازی لب و سوییچینگ.mp4.z01](https://github.com/Sina78900/sandbox4-yt/raw/main/dl/%D8%AF%D8%B1%DA%A9%20%D9%85%D9%82%D8%AF%D9%85%D8%A7%D8%AA%DB%8C%20%D8%B4%D8%A8%DA%A9%D9%87%20%D8%A8%D8%A7%20%D8%AC%D8%A7%D8%AF%DB%8C%20%DB%B0%DB%B0%DB%B2%20-%20%D8%B1%D8%A7%D9%87%20%D8%A7%D9%86%D8%AF%D8%A7%D8%B2%DB%8C%20%D9%84%D8%A8%20%D9%88%20%D8%B3%D9%88%DB%8C%DB%8C%DA%86%DB%8C%D9%86%DA%AF.mp4.z01) `95.0MB`
+
+- 🗜️ [درک مقدماتی شبکه با جادی ۰۰۲ - راه اندازی لب و سوییچینگ.mp4.zip](https://github.com/Sina78900/sandbox4-yt/raw/main/dl/%D8%AF%D8%B1%DA%A9%20%D9%85%D9%82%D8%AF%D9%85%D8%A7%D8%AA%DB%8C%20%D8%B4%D8%A8%DA%A9%D9%87%20%D8%A8%D8%A7%20%D8%AC%D8%A7%D8%AF%DB%8C%20%DB%B0%DB%B0%DB%B2%20-%20%D8%B1%D8%A7%D9%87%20%D8%A7%D9%86%D8%AF%D8%A7%D8%B2%DB%8C%20%D9%84%D8%A8%20%D9%88%20%D8%B3%D9%88%DB%8C%DB%8C%DA%86%DB%8C%D9%86%DA%AF.mp4.zip) `26.5MB`
+
+- 🎬 [درک مقدماتی شبکه جادی - قسمت ۱۴ - وی پی ان ها.mp4](https://github.com/Sina78900/sandbox4-yt/raw/main/dl/%D8%AF%D8%B1%DA%A9%20%D9%85%D9%82%D8%AF%D9%85%D8%A7%D8%AA%DB%8C%20%D8%B4%D8%A8%DA%A9%D9%87%20%D8%AC%D8%A7%D8%AF%DB%8C%20-%20%D9%82%D8%B3%D9%85%D8%AA%20%DB%B1%DB%B4%20-%20%D9%88%DB%8C%20%D9%BE%DB%8C%20%D8%A7%D9%86%20%D9%87%D8%A7.mp4) `47.7MB`
+
+- 🎬 [درک مقدماتی شبکه جادی - قسمت ۱۵ - شکن و بحث های متفرقه.mp4](https://github.com/Sina78900/sandbox4-yt/raw/main/dl/%D8%AF%D8%B1%DA%A9%20%D9%85%D9%82%D8%AF%D9%85%D8%A7%D8%AA%DB%8C%20%D8%B4%D8%A8%DA%A9%D9%87%20%D8%AC%D8%A7%D8%AF%DB%8C%20-%20%D9%82%D8%B3%D9%85%D8%AA%20%DB%B1%DB%B5%20-%20%D8%B4%DA%A9%D9%86%20%D9%88%20%D8%A8%D8%AD%D8%AB%20%D9%87%D8%A7%DB%8C%20%D9%85%D8%AA%D9%81%D8%B1%D9%82%D9%87.mp4) `22.9MB`
+
+- 🎬 [مقدمه ای بر درک شبکه  با جادی - قسمت ۱۲ - مفهوم پورت ها و برنامه‌هایی که بهشون گوش می‌دن.mp4](https://github.com/Sina78900/sandbox4-yt/raw/main/dl/%D9%85%D9%82%D8%AF%D9%85%D9%87%20%D8%A7%DB%8C%20%D8%A8%D8%B1%20%D8%AF%D8%B1%DA%A9%20%D8%B4%D8%A8%DA%A9%D9%87%20%20%D8%A8%D8%A7%20%D8%AC%D8%A7%D8%AF%DB%8C%20-%20%D9%82%D8%B3%D9%85%D8%AA%20%DB%B1%DB%B2%20-%20%D9%85%D9%81%D9%87%D9%88%D9%85%20%D9%BE%D9%88%D8%B1%D8%AA%20%D9%87%D8%A7%20%D9%88%20%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D9%87%E2%80%8C%D9%87%D8%A7%DB%8C%DB%8C%20%DA%A9%D9%87%20%D8%A8%D9%87%D8%B4%D9%88%D9%86%20%DA%AF%D9%88%D8%B4%20%D9%85%DB%8C%E2%80%8C%D8%AF%D9%86.mp4) `30.4MB`
+
+- 🎬 [مقدمه ای بر درک شبکه با جادی - قسمت ۱۳ - فایروال‌ها.mp4](https://github.com/Sina78900/sandbox4-yt/raw/main/dl/%D9%85%D9%82%D8%AF%D9%85%D9%87%20%D8%A7%DB%8C%20%D8%A8%D8%B1%20%D8%AF%D8%B1%DA%A9%20%D8%B4%D8%A8%DA%A9%D9%87%20%D8%A8%D8%A7%20%D8%AC%D8%A7%D8%AF%DB%8C%20-%20%D9%82%D8%B3%D9%85%D8%AA%20%DB%B1%DB%B3%20-%20%D9%81%D8%A7%DB%8C%D8%B1%D9%88%D8%A7%D9%84%E2%80%8C%D9%87%D8%A7.mp4) `29.4MB`
+
+- 🎬 [مقدمه ای بر درک شبکه با جادی - ۰۵ - روتینگ و مسیر یابی ۱ از ۲.mp4](https://github.com/Sina78900/sandbox4-yt/raw/main/dl/%D9%85%D9%82%D8%AF%D9%85%D9%87%20%D8%A7%DB%8C%20%D8%A8%D8%B1%20%D8%AF%D8%B1%DA%A9%20%D8%B4%D8%A8%DA%A9%D9%87%20%D8%A8%D8%A7%20%D8%AC%D8%A7%D8%AF%DB%8C%20-%20%DB%B0%DB%B5%20-%20%D8%B1%D9%88%D8%AA%DB%8C%D9%86%DA%AF%20%D9%88%20%D9%85%D8%B3%DB%8C%D8%B1%20%DB%8C%D8%A7%D8%A8%DB%8C%20%DB%B1%20%D8%A7%D8%B2%20%DB%B2.mp4) `25.5MB`
+
+- 🎬 [مقدمه ای بر درک شبکه با جادی - ۰۶ - روتینگ و مسیر یابی ۲ از ۲.mp4](https://github.com/Sina78900/sandbox4-yt/raw/main/dl/%D9%85%D9%82%D8%AF%D9%85%D9%87%20%D8%A7%DB%8C%20%D8%A8%D8%B1%20%D8%AF%D8%B1%DA%A9%20%D8%B4%D8%A8%DA%A9%D9%87%20%D8%A8%D8%A7%20%D8%AC%D8%A7%D8%AF%DB%8C%20-%20%DB%B0%DB%B6%20-%20%D8%B1%D9%88%D8%AA%DB%8C%D9%86%DA%AF%20%D9%88%20%D9%85%D8%B3%DB%8C%D8%B1%20%DB%8C%D8%A7%D8%A8%DB%8C%20%DB%B2%20%D8%A7%D8%B2%20%DB%B2.mp4) `38.8MB`
+
+- 🎬 [مقدمه ای بر درک شبکه با جادی - ۰۹ - ابزارهای ترابل شوتینگ.mp4](https://github.com/Sina78900/sandbox4-yt/raw/main/dl/%D9%85%D9%82%D8%AF%D9%85%D9%87%20%D8%A7%DB%8C%20%D8%A8%D8%B1%20%D8%AF%D8%B1%DA%A9%20%D8%B4%D8%A8%DA%A9%D9%87%20%D8%A8%D8%A7%20%D8%AC%D8%A7%D8%AF%DB%8C%20-%20%DB%B0%DB%B9%20-%20%D8%A7%D8%A8%D8%B2%D8%A7%D8%B1%D9%87%D8%A7%DB%8C%20%D8%AA%D8%B1%D8%A7%D8%A8%D9%84%20%D8%B4%D9%88%D8%AA%DB%8C%D9%86%DA%AF.mp4) `30.3MB`
+
+- 🎬 [مقدمه ای بر شبکه با جادی - ۰۷ - کمی بحث تئوریک در مورد روتینگ و مسیریابی.mp4](https://github.com/Sina78900/sandbox4-yt/raw/main/dl/%D9%85%D9%82%D8%AF%D9%85%D9%87%20%D8%A7%DB%8C%20%D8%A8%D8%B1%20%D8%B4%D8%A8%DA%A9%D9%87%20%D8%A8%D8%A7%20%D8%AC%D8%A7%D8%AF%DB%8C%20-%20%DB%B0%DB%B7%20-%20%DA%A9%D9%85%DB%8C%20%D8%A8%D8%AD%D8%AB%20%D8%AA%D8%A6%D9%88%D8%B1%DB%8C%DA%A9%20%D8%AF%D8%B1%20%D9%85%D9%88%D8%B1%D8%AF%20%D8%B1%D9%88%D8%AA%DB%8C%D9%86%DA%AF%20%D9%88%20%D9%85%D8%B3%DB%8C%D8%B1%DB%8C%D8%A7%D8%A8%DB%8C.mp4) `29.0MB`
+
+- 🎬 [مقدمه‌ای بر درک شبکه با جادی - ۰۱۱ - تی سی پی در مقابل یو دی پی.mp4](https://github.com/Sina78900/sandbox4-yt/raw/main/dl/%D9%85%D9%82%D8%AF%D9%85%D9%87%E2%80%8C%D8%A7%DB%8C%20%D8%A8%D8%B1%20%D8%AF%D8%B1%DA%A9%20%D8%B4%D8%A8%DA%A9%D9%87%20%D8%A8%D8%A7%20%D8%AC%D8%A7%D8%AF%DB%8C%20-%20%DB%B0%DB%B1%DB%B1%20-%20%D8%AA%DB%8C%20%D8%B3%DB%8C%20%D9%BE%DB%8C%20%D8%AF%D8%B1%20%D9%85%D9%82%D8%A7%D8%A8%D9%84%20%DB%8C%D9%88%20%D8%AF%DB%8C%20%D9%BE%DB%8C.mp4) `37.5MB`
+
+- 🎬 [مقدمه‌ای بر درک شبکه با جادی - ۰۸ - دی ان اس.mp4](https://github.com/Sina78900/sandbox4-yt/raw/main/dl/%D9%85%D9%82%D8%AF%D9%85%D9%87%E2%80%8C%D8%A7%DB%8C%20%D8%A8%D8%B1%20%D8%AF%D8%B1%DA%A9%20%D8%B4%D8%A8%DA%A9%D9%87%20%D8%A8%D8%A7%20%D8%AC%D8%A7%D8%AF%DB%8C%20-%20%DB%B0%DB%B8%20-%20%D8%AF%DB%8C%20%D8%A7%D9%86%20%D8%A7%D8%B3.mp4) `42.7MB`
+
+- 🎬 [مقدمه‌ای بر درک شبکه با جادی - ۱۰ - NAT.mp4](https://github.com/Sina78900/sandbox4-yt/raw/main/dl/%D9%85%D9%82%D8%AF%D9%85%D9%87%E2%80%8C%D8%A7%DB%8C%20%D8%A8%D8%B1%20%D8%AF%D8%B1%DA%A9%20%D8%B4%D8%A8%DA%A9%D9%87%20%D8%A8%D8%A7%20%D8%AC%D8%A7%D8%AF%DB%8C%20-%20%DB%B1%DB%B0%20-%20NAT.mp4) `32.4MB`
+
+---
+
+
 ### 📅 2026-05-10 02:22 IR
 - 🎬 [تانل نامرئی آروان؛ این متد اصلاً فیلتر نمی‌شه! (V2Ray Reverse).mp4](https://github.com/Sina78900/sandbox4-yt/raw/main/dl/%D8%AA%D8%A7%D9%86%D9%84%20%D9%86%D8%A7%D9%85%D8%B1%D8%A6%DB%8C%20%D8%A2%D8%B1%D9%88%D8%A7%D9%86%D8%9B%20%D8%A7%DB%8C%D9%86%20%D9%85%D8%AA%D8%AF%20%D8%A7%D8%B5%D9%84%D8%A7%D9%8B%20%D9%81%DB%8C%D9%84%D8%AA%D8%B1%20%D9%86%D9%85%DB%8C%E2%80%8C%D8%B4%D9%87%21%20%28V2Ray%20Reverse%29.mp4) `40.9MB`
 
